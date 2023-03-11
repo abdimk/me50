@@ -26,3 +26,4 @@ This is a 3Beds, 2bth single family home. It is located  at :  3031 N White Rive
  Owner Name: Richard Jakaden
 
 Contact the landlord: (978) 254-7596 kk
+
